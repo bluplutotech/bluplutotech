@@ -1,1 +1,1 @@
-# bluplutotech.md
+# 🚀 blupluto
